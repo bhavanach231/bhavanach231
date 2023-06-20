@@ -4,4 +4,3 @@
 - I have 5 years of experience As an Quality Analyst in Shipping and Logistics in WNS Global Service Private Limited.
 - I want to change my career in a New field. So, I have learned a new Skills like MYSQL, Python, Statistics.
 - I hope i will change my career.
-- 
